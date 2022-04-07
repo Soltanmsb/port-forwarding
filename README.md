@@ -19,6 +19,10 @@ TyPe &lt;/> HaCk
 
 <img src="https://soltanmsb.vhbot.xyz/personal%20files/IMG_20220407_143408_293.jpg">
 
+فیلم آموزشی
+
+<p><a href="https://soltanmsb.vhbot.xyz/personal%20files/InShot_%DB%B2%DB%B0%DB%B2%DB%B2%DB%B0%DB%B4%DB%B0%DB%B7_%DB%B1%DB%B5%DB%B1%DB%B3%DB%B5%DB%B0%DB%B1%DB%B0%DB%B1.mp4">فیلم آموزشی</p>
+
 <h2><a href="https://t.me/hacking_01">کانال ما</h2>
 
 <h2><a href="https://t.me/hacking_01_bot">ربات ما</h2>
